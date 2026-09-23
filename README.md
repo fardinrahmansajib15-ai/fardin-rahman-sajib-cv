@@ -1,4 +1,4 @@
-# fardin-rahman-sajib-cv# Fardin Rahman Sajib — CV
+# Fardin Rahman Sajib — CV
 
 ## About Me
 
